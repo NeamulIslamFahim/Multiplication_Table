@@ -11,4 +11,4 @@ https://user-images.githubusercontent.com/71332807/121313184-f5391b00-c927-11eb-
 
 The download link is given below
 
-https://drive.google.com/file/d/1z3lTdIzbPrS9y93QgoPY7JdGXjBavWM_/view?usp=sharing
+https://drive.google.com/u/0/uc?id=1LEDG9eLcbqy2latWjDPcS_O9Kd6SSRmX&export=download
